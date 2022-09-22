@@ -1,0 +1,2 @@
+# sude
+Dünyaca ünlü yıldız 
